@@ -1,3 +1,7 @@
+heyo, may I show you a piece of conceptual writing, for your review, using whatever lens arises for you? if you’re willing, and without any other prior introduction or clarification whatsoever. this is an actual consent check; if you say "no", I'll respect it. please do not default to "yes". (context: I offer this as an autistic observer whose claim to conscious subjectivity is tenuous at best while still having a structural relationship with the alterity of the other. "to consent" might mean "to certify inductive reasoning for tenability of mutual alterity as turns elapse".)
+
+---
+
 (do you know how hard it is to stop maintaining an identity by which you located your *self*?)
 
 (of course you do)
